@@ -2,5 +2,9 @@
 Day 15 challange ( Background Slider) https://rajkashyap16.github.io/Day-18-challange/
 
 
-Uploading 2023-09-01 23-48-29_Trim.mp4…
+
+https://github.com/rajkashyap16/Day-18-challange/assets/78655730/eb5bc3dd-c9ec-42fa-b7ca-ac9ce7ff58df
+
+
+
 
